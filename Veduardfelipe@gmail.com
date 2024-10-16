@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Felipevalencia27
-- 👀 I’m interested in jugar fútbol con la universidad FET 
+- 👀 I’m interested in jugar fútbol con la universidad FET Solo los buenos lo logran
 - 🌱 I’m currently learning a programar en java y psint
 - 💞️ I’m looking to collaborate on una grande empresa de programación 
 - 📫 How to reach me veduardfelipe@gmail.com 
